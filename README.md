@@ -7,3 +7,11 @@ I will really appreciate if you visit [varks](http://www.google.com).
 - First buy this.
 - add repository
 - get started
+
+## BUILD UP
+1. Buy remotely
+2. eat roughly
+3. have patience
+
+***buy now***
+
